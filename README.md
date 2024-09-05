@@ -2,7 +2,7 @@
 
 ### Connect with Me:
 
-- Instagram: [Instagram](https://wwww.instagram/chandraaa_856?igsh=NDV2xobGZqMmRj)
+- Instagram: [Instagram]()
 - Tiktok: [Tiktok]()
 - YouTube: [YouTube]()
 - Email: [Email]()
